@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Akinjisola2
-- 👀 I’m interested in Graphic design, Animation, modelling.
+- 👀 I’m interested in Graphic design, Social media manager, Content writer.
 - 🌱 I’m currently learning coding and script writing
 - 💞️ I’m looking to collaborate on Upwork
 - 📫 How to reach me :+2348115648166 or victorakinjisola92@gmail.com
